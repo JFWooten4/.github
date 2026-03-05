@@ -1,0 +1,1 @@
+To help with any of my economics or philosophy work, join [this Discord](https://discord.gg/wPKmTECv3B). For anything closer to asset management or CEDU development, reach out in [this server](https://discord.gg/hGrUK5zVsY). And of course, for advocacy and community use [this link](https://wooten.link/join).
